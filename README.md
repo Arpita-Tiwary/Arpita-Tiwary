@@ -24,7 +24,7 @@ Passionate about building real-time dashboards, smart systems, and AI-powered ap
 
 ⚡ Fun fact: I learn new tech insanely fast
 
-😄 Pronouns: He/Him
+😄 Pronouns: She/Her
 
 🛠️ Tech Stack
 Languages
